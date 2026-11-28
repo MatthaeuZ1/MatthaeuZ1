@@ -1,4 +1,4 @@
-# E aí, eu sou TheuZ 👋 
+# 𝙀 𝙖𝙞́, 𝙚𝙪 𝙨𝙤𝙪 𝙏𝙝𝙚𝙪𝙯 👋 
 
 Seja bem-vindo(a) ao meu espaço! 
 
